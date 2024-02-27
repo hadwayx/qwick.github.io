@@ -1,1 +1,0 @@
-# qwick.github.io
